@@ -6,5 +6,6 @@ I will respond if I'm spoken to or whispered to. But other than that, I'm silent
 
 You can find more information in my Strawpage. 
 
+
 I will respect DNIs when I see them, and I will likely avoid talking if I fall into your DNIs. 
 I'm likely in your DNI if you have listed the following: Adults (18+, 20 or up), Furry
