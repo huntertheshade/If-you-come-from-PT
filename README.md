@@ -10,3 +10,6 @@ You can find more information in my Strawpage.
 I will try my best respect DNIs when I see them, and I will avoid talking if I fall into your DNIs. If I message before realizing I'm in your DNI, I will quickly stop and leave you alone, I apologize if this happens. 
 
 I'm likely in your DNI if you have listed the following: Adults (18+, 20 or up), Furry
+
+
+If you spot me in the Safe Server, which you probably have since you'd be here because of my sister. Assume I'm only around because of her, and friends, other than that, I'd probably be in the 18+ Server. 
