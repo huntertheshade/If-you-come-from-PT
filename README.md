@@ -1,4 +1,7 @@
 # If-you-come-from-PT
+NOTE: I have been made aware one of my cosplays was put on a scummy site known as Copy Town. All I want to say is that I really do not care or mind if you want to take heavy inspiration from my cosplays and ponies on there, please don't just flat out copy or use that website. It's just annoying and can cause mixups that I do not want at all :sob: 
+
+
 If you come from Pony Town. Please note that I am an ADULT, in my earliest of 20s. I will not approach unless I'm just complimenting a cosplay I notice if it's from the same interests I have, even then, the conversation typically stays short unless you feel like talking to me about the interest.
 My main interests are Roblox: Decaying Winter and Examination, Music: Battlejuice. 
 
