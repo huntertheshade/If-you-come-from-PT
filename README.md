@@ -16,3 +16,6 @@ I'm likely in your DNI if you have listed the following: Adults (18+, 20 or up),
 
 
 If you spot me in the Safe Server, which you probably have since you'd be here because of my sister. Assume I'm only around because of her, and friends, other than that, I'd probably be in the 18+ Server. 
+
+
+<img width="225" height="216" alt="225px-MINIBOSS_Marshmallow_Idle" src="https://github.com/user-attachments/assets/86d06e0f-53da-4845-9c2d-28d08101fd45" />
